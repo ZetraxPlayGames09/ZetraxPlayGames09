@@ -1,2 +1,2 @@
 👑 Przyszły Szef ManyMC
-**Nigdy się nie poddawać 
+**Nigdy się nie poddawać**
